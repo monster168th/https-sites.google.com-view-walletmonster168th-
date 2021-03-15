@@ -1,1 +1,2 @@
 <p>&nbsp;</p><div class="separator" style="clear: both; text-align: center;"><a href="https://wallet.asgard777.com/register/60077" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="1040" data-original-width="1040" height="320" src="https://1.bp.blogspot.com/-HSfBgILj6Zo/YE6wIaeuqLI/AAAAAAAAEHU/OP1tKSrNKEU0vVwEW6ekTr7PKQYKlKLIgCLcBGAsYHQ/s320/pro_newuser2.png" /></a></div><br /><p></p>
+ฝาก20รับ100
